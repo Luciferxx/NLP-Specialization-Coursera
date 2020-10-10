@@ -1,1 +1,1 @@
-![img](Certificate.png)
+![img](Certificate.jpg)
